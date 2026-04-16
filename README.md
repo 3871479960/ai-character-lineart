@@ -18,7 +18,7 @@
 ## 📸 精彩线稿示例 (Showcase)
 
 ### 1. 写实人像与动漫角色
-精准还原人体结构与二次元魅力，线条干净流畅，层次感分明。
+精准还原人体结构与二次元魅力，线条干净流畅，层次感分明
 | 写实人物轮廓 | 动漫角色线稿 |
 | :--- | :--- |
 | ![写实线稿](https://img.sipingseo.com/file/character-line-art/lyYkG8cZ.webp) | ![动漫线稿](https://img.sipingseo.com/file/character-line-art/cDyBgiAJ.webp) |
