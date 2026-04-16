@@ -30,7 +30,7 @@
 | ![古风线稿](https://img.sipingseo.com/file/character-line-art/tJLjg0DQ.webp) | ![Q版线稿](https://img.sipingseo.com/file/character-line-art/1gjGiMoN.webp) |
 
 ### 3. 时尚、舞蹈与运动姿态
-捕捉模特的 T 台风采、舞者的舒展体态以及运动员的肌肉张力。
+捕捉模特的 T 台风采、舞者的舒展体态以及运动员的肌肉张力
 | 时尚速写 | 舞蹈动态 | 运动扣篮 |
 | :--- | :--- | :--- |
 | ![时尚速写](https://img.sipingseo.com/file/character-line-art/Yz9a9FuA.webp) | ![舞蹈动态](https://img.sipingseo.com/file/character-line-art/VlbLASJC.webp) | ![运动扣篮](https://img.sipingseo.com/file/character-line-art/qSlM1p4W.webp) |
