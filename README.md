@@ -24,7 +24,7 @@
 | ![写实线稿](https://img.sipingseo.com/file/character-line-art/lyYkG8cZ.webp) | ![动漫线稿](https://img.sipingseo.com/file/character-line-art/cDyBgiAJ.webp) |
 
 ### 2. 古风仕女与 Q 版卡通
-模拟传统白描技法与现代萌系简化造型，满足多元审美需求。
+模拟传统白描技法与现代萌系简化造型，满足多元审美需求
 | 古风人物线稿 | Q 版萌趣线稿 |
 | :--- | :--- |
 | ![古风线稿](https://img.sipingseo.com/file/character-line-art/tJLjg0DQ.webp) | ![Q版线稿](https://img.sipingseo.com/file/character-line-art/1gjGiMoN.webp) |
